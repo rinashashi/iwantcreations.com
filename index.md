@@ -1,3 +1,3 @@
 Hi friends,
 
-I am [rinashashi](https://srvrma.com/)
+I am [rinashashi](https://srverma.com/)
