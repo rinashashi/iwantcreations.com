@@ -1,3 +1,3 @@
 Hi friends,
 
-I am [rinashashi](https://github.com/)
+I am [rinashashi](https://githu.com/)
